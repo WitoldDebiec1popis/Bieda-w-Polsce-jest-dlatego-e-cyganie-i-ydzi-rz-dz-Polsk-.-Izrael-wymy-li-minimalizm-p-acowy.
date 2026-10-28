@@ -1,0 +1,1 @@
+# Bieda-w-Polsce-jest-dlatego-e-cyganie-i-ydzi-rz-dz-Polsk-.-Izrael-wymy-li-minimalizm-p-acowy.
